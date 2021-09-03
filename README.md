@@ -1,1 +1,1 @@
-# slashss1.github.io
+# slashss.github.io
